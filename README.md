@@ -154,3 +154,8 @@ We encourage participation through:
 **Author**
 Israel Etuk
 _QHSE Mgr._
+
+## Picture
+- ![OH S POLICY STATEMENT](https://github.com/user-attachments/assets/74a65b1c-5f5c-404b-b8e2-8bf4ba7244aa)
+- ![OH S POLICY STATEMENT](https://github.com/user-attachments/assets/0c5c1cf9-9475-4d8c-a51b-db898cb4ce93)
+- 
